@@ -1,6 +1,6 @@
 # 👩🏻‍💻   Thais Helena
 
-**`Analista de Dados`**
+**`Analista de Dados em formação`**
 
 Me chamo Thais Helena, tenho 22 anos e sou natural de São Paulo e estou cursando Engenharia da Computação na FIAP. 
 
